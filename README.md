@@ -1,0 +1,1 @@
+Jakistam moj teksts
